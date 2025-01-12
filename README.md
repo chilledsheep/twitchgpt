@@ -4,11 +4,9 @@
 
 Your support means the world to me! ❤️
 
-☕ [Buy me a coffee to support me](https://www.buymeacoffee.com/osetinhas) ☕
+☕ [Buy me a coffee to support me](https://www.ko-fi.com/eyechel) ☕
 
-Join our Discord community:
 
-[https://discord.gg/pcxybrpDx6](https://discord.gg/pcxybrpDx6)
 
 ---
 
